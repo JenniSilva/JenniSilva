@@ -1,4 +1,4 @@
-## bien vinidos 💋👀
+## bem vindos 👀
 
 Meu nome é Jennifer Silva
 
